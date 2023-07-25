@@ -3,6 +3,8 @@
 ---
 
 ---  
+Characteristics of people who succeed without talent
+
 First, be diligent.
 
 Some people may feel discouraged when they hear this. After all, everyone knows that one should be diligent. However, not many people actually put this into practice. It's rare to find someone who practices and improves their skills consistently, rain or shine. Even if one has exceptional talent, it will rust away quickly without diligence. Let us not forget that cultivating talent requires diligence, as does creating new talent.
